@@ -1,16 +1,36 @@
-## Hi there 👋
 
-<!--
-**soulseob/soulseob** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=soulseobing&color=lightgrey&label=p1useverything." />
+</p>
+⠀
+⠀
+<p align="center">
+ <img src="https://i.imgur.com/uUYrmyp.png"/>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀<p align="center">
+  —×—
+</p>
+
+⠀
+<p align="center">
+The  Man  Who  Chases  the  Light;  𝘵𝘩𝘦  𝘔𝘪𝘴𝘴𝘪𝘯𝘨,  𝘊𝘩𝘢𝘴𝘦𝘥  𝘣𝘺  𝘵𝘩𝘦  𝘓𝘪𝘨𝘩𝘵 . 
+</p>
+<p align="center">
+<a href="https://82lovely.straw.page/" target="_blank">strawpg</a> ⠀<a href="https://shosletters.atabook.org" target="_blank">ata</a> ⠀<a href="https://prns.cc/xzcjr" target="_blank">prns</a> ⠀<a href="https://lovemasato.straw.page/" target="_blank">yumeship strawpg</a>
+</p>
+ ⠀
+ ⠀
+ ⠀
+<p align="center">
+  STREAM UNIQUE BY P1HARMONY NOW. 
+</p>
+⠀⠀
+<p align="center">
+  ౨ৎ 
+</p>
+⠀
+⠀
+
+
