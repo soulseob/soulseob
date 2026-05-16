@@ -16,7 +16,7 @@
 ⠀
 <p align="center">
  ⠀⠀⠀⠀⠀⠀       ⠀⠀⠀⠀what 's ⠀the ⠀fuss ? 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://82lovely.straw.page/" target="_blank">s𝗍𝗋𝖺𝗐</a>𝗉𝖺𝗀𝖾 ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">a</a>𝗍𝖺 ⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">pr𝗈</a>𝗇𝗈𝗎𝗇𝗌
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://yours82.straw.page/" target="_blank">s𝗍𝗋𝖺𝗐</a>𝗉𝖺𝗀𝖾 ⠀ ⠀⠀<a href="https://shosletters.atabook.org" target="_blank">a</a>𝗍𝖺 ⠀ ⠀⠀<a href="https://prns.cc/xzcjr" target="_blank">pr𝗈</a>𝗇𝗈𝗎𝗇𝗌
  ⠀
  ⠀
 
